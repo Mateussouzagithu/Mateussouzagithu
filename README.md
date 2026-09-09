@@ -4,7 +4,7 @@
 
 💼 **Experience in Production Planning (PCP)**
 
-📊 **Power BI | SQL Server | Excel | SAP S/4HANA PP**
+📊 **Power BI | SQL Server | Excel | SAP S/4HANA PP | Suport IT**
 
 🌎 **Santa Catarina, Brazil | 🇺🇸 English Learner**
 
