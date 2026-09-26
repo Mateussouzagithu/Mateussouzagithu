@@ -1,6 +1,6 @@
 # 👨‍💻 Mateus Souza
 
-**`Data Analyst | IT & Data Enthusiast`**
+**`Data Analyst | IT & Data Enthusiast | Business Intelligence`**
 
 💼 **Experience in Production Planning (PCP)**
 
